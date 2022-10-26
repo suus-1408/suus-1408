@@ -2,4 +2,4 @@
 - 👀 I’m interested in playing games
 - 🌱 I’m currently learning micro-bit
 - 💞️ I’m looking to collaborate on community
-- 📫 How to reach me tiktok: suus_1408
+- 📫 How to reach me: tiktok: suus_1408
